@@ -7,3 +7,11 @@
  
  
  ♡ -
+
+
+
+<!--START_LASTFM_ARTISTS-->
+<!--END_LASTFM_ARTISTS-->
+
+<!--START_LASTFM_RECENT-->
+<!--END_LASTFM_RECENT-->
