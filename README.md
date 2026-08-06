@@ -1,1 +1,9 @@
-      <img width="498" height="281" alt="brawl-stars-larry-and-lawrie" src="https://github.com/user-attachments/assets/2a9384c9-dfe4-41d3-ad6f-bf7a59f20bc0" />
+# awesome info abt me
+<img width="584" height="311" alt="image" src="https://github.com/user-attachments/assets/c824ac4d-8201-4a7c-98f5-300b2652def9" />
+
+ ㅤㅤㅤㅤㅤㅤㅤ𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡
+
+ ♡ - i go by law , lawrie , nanyu ノ i use they / pup / paw ノ WIP !!!!!!!!!!!!!!!!!!!1 GO AWAY!!
+ 
+ 
+ ♡ -
