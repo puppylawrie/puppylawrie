@@ -10,7 +10,7 @@
  
  ♡ - im a fictionkin, c'link and a yumeshipper , my kins are listed on my puppylawrie strawpage ok ( doubles can int i really dont care )
 
- ♡ - im profic so just dni if u dont like dat, fiction doesnt affect my morals and my reality and thats ok. stay ohio safe
+ ♡ - im profic so just dni if u dont like dat, fiction doesnt affect **my** morals and my reality and thats ok. stay ohio safe
 
  ♡ - being mean is my love language in a way noclue how to describe it but its ok , just dont it personally
 
