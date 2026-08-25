@@ -12,8 +12,9 @@
 
  ♡ - im profic so just dni if u dont like dat, fiction doesnt affect **my** morals and my reality and thats ok. stay ohio safe
 
- ♡ - being mean is my love language in a way noclue how to describe it but its ok , just dont take it personally
+ ♡ - being mean is my love language in a way noclue how to describe it but its ok , just dont take it personally idont mean it
 
+ ♡ - i very rarely come up to people first to be friends , if u think im cool plzplzplz whisper and talk to me , i can be awkward but its ok. im very open to meeting new people okays
 
 <img width="500" height="400" alt="20260713_041604" src="https://github.com/user-attachments/assets/f2571094-47c1-43b5-89d5-2727c914f92b" /> 
  
