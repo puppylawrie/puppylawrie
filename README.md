@@ -20,11 +20,16 @@ lawrie fictkin ,　w2i !!
 
 
 
-૮֊˕֊ა੭ 
+<img width="100" height="50" alt="image" src="https://cdn.discordapp.com/attachments/1234848959571169324/1555967989919256688/tumblr_bc907cae89aec1fb0d9d939338a57409_a24c30ef_400.gif?backend=b2&ex=6ac2739d&is=6ac1221d&hm=9d10f3e06f7c779aca5bd0026205c440718cf28b7c60bdc6662837564cab08ce&" />
+
+
+
 
 
 
 [strawpage](https://puppyarale.straw.page/)  ⸝  [ATA](https://llcestdisorder.atabook.org)  ⸝ [pronouns](https://en.pronouns.page/@llcestdisorder)
+
+
 
 
 
