@@ -29,23 +29,23 @@
 　
 
    
-law ⋮ lawrie⠀𓂂　　　6teen ♡
+law ⋮ lawrie⠀𓂂　　　6teen ♡  
 
 
 
 
-lawrie fictkin ,　w2i !! 
-
-
-
-
-
+lawrie fictkin ,　pl / eng !! 
 
 
 
 
 
-<img width="100" height="50" alt="image" src="https://cdn.discordapp.com/attachments/1234848959571169324/1555967989919256688/tumblr_bc907cae89aec1fb0d9d939338a57409_a24c30ef_400.gif?backend=b2&ex=6ac2739d&is=6ac1221d&hm=9d10f3e06f7c779aca5bd0026205c440718cf28b7c60bdc6662837564cab08ce&" />
+
+
+
+
+
+<img width="100" height="50" alt="image" src="https://64.media.tumblr.com/bc907cae89aec1fb0d9d939338a57409/63ef10277d9bffa6-d3/s250x400/aafb45dbc2764f55c47e40c117a199b0fe83eb72.gifv" />
 
 
 
