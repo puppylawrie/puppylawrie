@@ -17,15 +17,13 @@
 <div align="center">
 
 
-<img width="400" height="400" alt="Image" src="https://cdn.discordapp.com/attachments/1234848959571169324/1555954990093176842/sfnQmEQ7G9UAGGaG.gif?backend=b2&ex=6ac26781&is=6ac11601&hm=5a0b6d97f55abac7632997a1517c56b9e647c3db171dd47c09e54e4af6615654&" />
+<img width="400" height="400" alt="Image" src="https://64.media.tumblr.com/0db9f1743a8997b60dd60be70b27361a/666e73bfc6cee2a2-1e/s1280x1920/451220a30ded3b0f26828c2fd0a25c058d1759c6.gifv" />
 
 <div align="center">
 
 
 
 
-<p align="center">
-  <img src="https://64.media.tumblr.com/c6df0940be60f1a8cb1a8e92a3daf68a/731b82d66beb4a14-ed/s1280x1920/d22c9dd15e0a772206725bcff7fa21bf20c9dbba.gifv" width="600">
 　
 
    
