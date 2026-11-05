@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://64.media.tumblr.com/67b258a78e2a8cf4a01a9e9602f80dab/0adc0f030af73f74-39/s640x960/3be01036834b90a101ea97460f69347747b119ff.gifv" width="600">
+  <img src="https://64.media.tumblr.com/67b258a78e2a8cf4a01a9e9602f80dab/0adc0f030af73f74-39/s640x960/3be01036834b90a101ea97460f69347747b119ff.gifv" width="500">
 
 
 
@@ -11,8 +11,7 @@
 
 
 <p align="center">
-<img width="500" height="24" alt="image" src="https://github.com/user-attachments/assets/ac411b5f-d652-4103-adce-de36ae924c35" />
-
+<img width="500" height="30" alt="image" src="https://github.com/user-attachments/assets/ac411b5f-d652-4103-adce-de36ae924c35" />
 
 <div align="center">
 
@@ -26,13 +25,9 @@
 
 　
 
-   
-law ⋮ lawrie⠀𓂂　　　6teen ♡  
-
-
-
-
-lawrie fictkin ,　pl / eng !! 
+  law ⋮ lawrie⠀𓂂　　　6teen ♡  
+  
+  lawrie fictkin ,　dogkin　　 ⸝    pl / eng !! 
 
 
 
@@ -68,8 +63,20 @@ lawrie fictkin ,　pl / eng !!
 
 
 
+<p align="center">
+<img width="500" height="30" alt="image" src="https://github.com/user-attachments/assets/ac411b5f-d652-4103-adce-de36ae924c35" />
 
-<img width="400" height="24" alt="image" src="https://github.com/user-attachments/assets/ac411b5f-d652-4103-adce-de36ae924c35" />
+
+
+
+
+
+
+
+
+<p align="center">
+  <img width="33" height="18" alt="image" src="https://github.com/user-attachments/assets/28d42147-29bd-4700-b06a-f561bb082b2c" />
+
 
 
 
