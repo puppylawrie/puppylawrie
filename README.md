@@ -25,7 +25,7 @@
 
 　
 
-  law ⋮ lawrie : lori⠀𓂂　　　6teen ♡  
+  law ⋮ lawrie : lori⠀𓂂　　9w8　　𓏲﹕　6teen ♡  
   
   lawrie fictkin ,　dogkin　　 ⸝    pl / eng !! 
 
